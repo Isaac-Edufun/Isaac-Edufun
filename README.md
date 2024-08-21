@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Isaac-Edufun
+- 👀 I’m interested in working online
+- 🌱 I've just completed an 8-week Virtual Assistant Program
+- 💞️ I’m looking to collaborate on a lot of things
+- 📫 How to reach me https://www.linkedin.com/public-profile/settings?trk=d_flagship3_profile_self_view_public_profile
